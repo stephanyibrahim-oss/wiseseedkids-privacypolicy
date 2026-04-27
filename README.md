@@ -1,0 +1,1 @@
+# wiseseedkids-privacypolicy
